@@ -1,1 +1,2 @@
-i have a good study buddy'
+I have a good study buddy and her name is Tijani
+
